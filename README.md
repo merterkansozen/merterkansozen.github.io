@@ -4,4 +4,3 @@
 
 Mert Erkan SÖZEN, Ph.D.
 
-_Resume_
